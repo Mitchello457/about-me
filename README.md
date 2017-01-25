@@ -1,2 +1,3 @@
 # about-me
 Mitchell was born in Davenport, Iowa in 1998. He is an only child. His father worked for Alcoa at the time and his mother worked for an an architecture firm. Shortly after he turned four, his father's job moved to Pittsburgh, Pennsylvania so the family moved with him. His mother gave up on finding work because of the many places that she had lived with her husband in the past. She became a stay at home mom for her son.
+Mitchell attended Seneca Valley School District once he became old enough. He had an interest in Math and Science before the 5th grade. He wanted to know more about space and how the universe works. He fueled this hunger by watching shoes such as "How the Universe Works" and "Through the Wormhole with Morgan Freeman".
