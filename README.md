@@ -1,3 +1,2 @@
 # about-me
-This is me. It will contain personal information such as who I am and what I plan to accomplish.
-  Mitchell was born in Davenport, Iowa in 1998.
+Mitchell was born in Davenport, Iowa in 1998. He is an only child. His father worked for Alcoa at the time and his mother worked for an an architecture firm. Shortly after he turned four, his father's job moved to Pittsburgh, Pennsylvania so the family moved with him. His mother gave up on finding work because of the many places that she had lived with her husband in the past. She became a stay at home mom for her son.
